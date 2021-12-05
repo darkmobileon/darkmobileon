@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @darkmobileon
-- 👀 I’m interested in some shit
 - 🌱 I’m currently learning alot
 - 📫 How to reach me https://t.me/darkmob1
 
